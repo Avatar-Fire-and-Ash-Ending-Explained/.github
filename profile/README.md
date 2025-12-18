@@ -4,6 +4,8 @@
 
 Below is a light spoiler explanation that highlights the main outcome of the ending, without going into excessive detail or discussing where to watch the film.
 
+[![Avatar Image](https://raw.githubusercontent.com/Avatar-Fire-and-Ash-Ending-Explained/.github/refs/heads/main/Screenshot_16.png)](https://bahaviofilm.com)
+
 ## What Is Avatar: Fire and Ash About?
 
 The third chapter in the Avatar saga expands the conflict on Pandora, bringing multiple Na’vi clans into open confrontation with the Sky People. As tensions escalate, long-standing rivalries resurface, alliances are tested, and the cost of survival becomes impossible to ignore.
